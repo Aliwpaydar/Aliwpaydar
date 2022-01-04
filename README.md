@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Aliwpaydar
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Aliwpaydar/Aliwpaydar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+Bomber
+Atak0100111111111
+Sms atacked
